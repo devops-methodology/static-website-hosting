@@ -1,2 +1,3 @@
-![image](https://github.com/user-attachments/assets/44f3d235-e36b-4428-87df-47f00815a82c)
 
+
+![my-portfolio](https://github.com/user-attachments/assets/7d7c4334-e24b-44b5-b9a4-54798dcdc0b5)
